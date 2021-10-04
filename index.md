@@ -1,7 +1,6 @@
 ---
 title: The Watkins Family
 ---
-
 _Multiplying churches and leaders in the Isan region of Thailand._
 
 ![88515E3D-2B5E-40A7-8538-3C7C3F78A0F2](https://user-images.githubusercontent.com/91859434/135786305-2c23310a-dd46-457e-ab3a-1f8905acc8ce.jpeg)
