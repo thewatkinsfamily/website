@@ -1,13 +1,9 @@
 ---
 title: The Watkins Family
+description: Multiplying churches and leaders in the Isan region of Thailand.
 ---
-_Multiplying churches and leaders in the Isan region of Thailand._
 
 ![88515E3D-2B5E-40A7-8538-3C7C3F78A0F2](https://user-images.githubusercontent.com/91859434/135786305-2c23310a-dd46-457e-ab3a-1f8905acc8ce.jpeg)
-
-
-> How then will they call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? **Romans 10:14**
-
 
 ## About Us
 We are Nathan and Jackie Watkins. We have four children: Nathan III, Tyler, Hannah, and Ezra. Nathan grew up as a missionary kid in the Ivory Coast, West Africa, and Jackie grew up in Brownsburg, Indiana. We were appointed by ABWE as missionaries to Thailand in the summer of 2021. Our goal is to reach lost Thais through church planting, discipleship, and leadership development
