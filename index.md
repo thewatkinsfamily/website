@@ -14,3 +14,5 @@ We are Nathan and Jackie Watkins. We have four children: Nathan III, Tyler, Hann
 
 [Newsletter Signup](https://forms.gle/J3LC5qjCCz1Pm85N6)
 
+[Follow us on Facebook](https://www.facebook.com/groups/watkinsfamthailand)
+
